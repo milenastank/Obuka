@@ -1,6 +1,6 @@
 **Milena Stanković** \
 *OŠ "Jovan Jovanović Zmaj", Vranje*  
-[Moja škola](jjzmajvranje.edu.rs)
+[Moja škola](www.jjzmajvranje.edu.rs)
 # Sveto naučno trojstvo 
 ## Nikola Tesla 
 **Nikola Tesla**, čuveni srpski pronalazač i inženjer elektrotehnike i mašinstva, rodjen je u Smiljanu 10. jula 1856, a umro je u   
